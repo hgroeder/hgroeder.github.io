@@ -5,7 +5,10 @@ Captain Alatriste fought in the siege of Breda in 1625. He was characterized by 
 * forever stuck between the love of two women
 * will always follow his instinct of honour and loyalty without considering the consequences
 * will always take good care of his friends
+
 As Alatriste would say:
+
 >I'm not a man of many words.
 >Let the sword and dagger to the talking.
-<img src="https://en.wikipedia.org/wiki/The_Surrender_of_Breda#/media/File:Velazquez-The_Surrender_of_Breda.jpg"/>
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/8/8e/Velazquez-The_Surrender_of_Breda.jpg"/>
