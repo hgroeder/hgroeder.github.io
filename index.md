@@ -8,3 +8,4 @@ Captain Alatriste fought in the siege of Breda in 1625. He was characterized by 
 As Alatriste would say:
 >I'm not a man of many words.
 >Let the sword and dagger to the talking.
+<img src="https://en.wikipedia.org/wiki/The_Surrender_of_Breda#/media/File:Velazquez-The_Surrender_of_Breda.jpg"/>
